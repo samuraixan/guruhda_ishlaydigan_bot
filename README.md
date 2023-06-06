@@ -1,0 +1,1 @@
+# guruhda_ishlaydigan_bot
